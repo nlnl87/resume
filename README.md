@@ -5,3 +5,6 @@
 - 學歷 : [台灣大學\生物機電產業工程學系碩士班](https://www.bime.ntu.edu.tw/Default.html)
 - 興趣 : 打球、旅遊、**健身**
 <hr>
+
+- 大笨鳥
+![img](https://i.imgur.com/peHnyqp.png)
